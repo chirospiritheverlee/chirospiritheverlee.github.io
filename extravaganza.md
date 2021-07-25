@@ -64,7 +64,7 @@ TIP MOGELIJK
 
 Bewijs: foto van tweede fles.
 
-9) CH4 Gas! (G|P) as!
+9) CH4 Gas! (G\|P) as!
 
 - Maak in twee groepjes een grappige iets VOOR nieuwe (gas) gascentrales en TEGEN (pas) gascentales. Beiden worden opgevoerd aan elkaar of een groep leden die bij afloop mogen stemmen voor Pas of Gas. 
 
